@@ -1,1 +1,1 @@
-https://github.com/Tassyra/ono-tebe-nado-ad#
+https://github.com/Tassyra/ono-tebe-nado-ad
